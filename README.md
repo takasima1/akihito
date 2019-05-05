@@ -1,2 +1,0 @@
-# akihito
-vaikinnmann
